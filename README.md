@@ -11,3 +11,6 @@ Advice or restrictions on providing services on Yooba
   7. Official state templates.
   8. Bases of personal data.
   9. Used underwear (bras, panties, body, stockings, tights).
+
+### Intellectual Property Rights (IPR) Protection Policy
+Counterfeits, replicas, or other unauthorized items are prohibited on the Yooba.
