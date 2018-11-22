@@ -4,6 +4,9 @@ Advice or restrictions on providing services on Yooba
 ### Restricted goods and services (The list could be change!)
 Please note that this is not a full list!
 
+### You can send us the name of the product (service) that, to your mind, is inappropriate for placement on our platform. 
+Official Email: yooba@yooba.org
+
   1. Narcotic drugs under international control (heroin, morphine, cocaine, cannabis, Amphetamines, barbiturates, LSD and MD()A(ecstasy), ephedrine, synthetic cannabinoids, GBL, BZP, naphyrone & piperazine...)
   2. Arms and ammunition.
   3. Counterfeit or pirated goods.
